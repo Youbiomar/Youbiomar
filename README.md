@@ -1,7 +1,7 @@
 # 👋 Hey there, I’m @Youbiomar!
 
 ## 👀 A Little About Me  
-I’m someone who’s always curious and excited about making things that makes like easier for us, or in a another way i am trying to create things that actually save time for myself for my own convenience. the biggest challenge is making it useful for other people.
+I’m someone who’s always curious and excited about making things that makes life easier for us, or in a another way i am trying to create things that actually save time for myself and my own convenience. the biggest challenge is making it useful for other people.
 I love turning ideas into reality and learning something new every day.  
 
 ## 🌱 What I’m Learning  
